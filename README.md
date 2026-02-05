@@ -27,7 +27,6 @@ If something sparks my interest, I like to explore it, learn how it works, and a
 - Coding
 - Watching series and movies
 - Playing basketball
-- Coffee and tea enthusiast ☕
 
 ### Contact
 - Telegram: *available in bio*
